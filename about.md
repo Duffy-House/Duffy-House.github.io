@@ -4,12 +4,11 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+An upcoming site and blog for Duffy House press.
 
 ### More Information
 
-A place to include any other types of information that you'd like to include about yourself.
+I am still learning this shit so you better be fucking patient!!!
 
 ### Contact me
-
-[email@domain.com](mailto:email@domain.com)
+Leave me alone for now.
