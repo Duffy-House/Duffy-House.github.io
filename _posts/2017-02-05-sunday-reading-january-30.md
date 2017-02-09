@@ -17,7 +17,8 @@ Selected readings from the week of January 30, 2017.
 [How Vancouver got its housing bubble under control: a lesson for cities like London and San Francisco - Eshe Nelson, Quarz] (https://qz.com/903194/vancouver-house-prices-are-falling-as-it-gets-its-real-estate-bubble-under-control)
 
 **History**
-[In the time of Trump: housing, whiteness, and abolition - Marissa M. Maharawal and Erin McElroy (The Anti-Eviction Mapping Project)] - Abolition Journal (https://abolitionjournal.org/in-the-time-of-trump-housing-whiteness-and-abolition/)
+
+[In the time of Trump: housing, whiteness, and abolition - Marissa M. Maharawal and Erin McElroy (The Anti-Eviction Mapping Project), Abolition Journal] (https://abolitionjournal.org/in-the-time-of-trump-housing-whiteness-and-abolition/)
 
 [Seeping through the pages - Mark Trecka, The New Inquiry] (http://thenewinquiry.com/essays/seeping-through-the-pages/)
 
