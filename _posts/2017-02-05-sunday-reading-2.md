@@ -14,7 +14,7 @@ Selected readings from the week of January 30, 2017.
 
 [Why Donald Trumps 'fear of stairs' is so appealing - Josephine Livingstone, New Republic](https://newrepublic.com/article/140302/donald-trumps-fear-stairs-appealing)
 
-[How Vancouver got its housing bubble under control: a lesson for cities like London and San Francisco - Eshe Nelson, Quarz](https://qz.com/903194/vancouver-house-prices-are-falling-as-it-gets-its-real-estate-bubble-under-control)
+[How Vancouver got its housing bubble under control: a lesson for cities like London and San Francisco - Eshe Nelson, Quartz](https://qz.com/903194/vancouver-house-prices-are-falling-as-it-gets-its-real-estate-bubble-under-control)
 
 **History**
 
