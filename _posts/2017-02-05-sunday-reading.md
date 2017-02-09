@@ -1,7 +1,7 @@
 ---
 layout: post
 
-title: Sunday Reading 1/30/2017
+title: Sunday Reading
 
 ---
 
