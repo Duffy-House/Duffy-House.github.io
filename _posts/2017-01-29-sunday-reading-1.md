@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sunday Reading
+title: Sunday Reading 1/29/2017
 ---
 Selected readings from the week.
 
