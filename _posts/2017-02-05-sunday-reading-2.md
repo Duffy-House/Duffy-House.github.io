@@ -12,7 +12,7 @@ Selected readings from the week of January 30, 2017.
 
 [The Doomsday Clock is now at two and a half minutes to midnight - James Carden, The Nation](https://www.thenation.com/article/the-doomsday-clock-is-now-at-two-and-a-half-minutes-to-midnight/)
 
-[Why Donald Trumps 'fear of stairs' is so appealing - Josephine Livingstone, New Republic](https://newrepublic.com/article/140302/donald-trumps-fear-stairs-appealing)
+[Why Donald Trump's 'fear of stairs' is so appealing - Josephine Livingstone, New Republic](https://newrepublic.com/article/140302/donald-trumps-fear-stairs-appealing)
 
 [How Vancouver got its housing bubble under control: a lesson for cities like London and San Francisco - Eshe Nelson, Quartz](https://qz.com/903194/vancouver-house-prices-are-falling-as-it-gets-its-real-estate-bubble-under-control)
 
