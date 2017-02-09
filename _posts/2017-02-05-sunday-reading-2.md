@@ -26,7 +26,7 @@ Selected readings from the week of January 30, 2017.
 
 **Arts & Culture**
 
-[Henry David Thoreau on when civil disopedience against bad governments is justified: an animated introduction - Colin Marshall, Open Culture](http://www.openculture.com/2017/01/henry-david-thoreau-on-when-civil-disobedience-against-bad-governments-is-justified.html)
+[Henry David Thoreau on when civil disobedience against bad governments is justified: an animated introduction - Colin Marshall, Open Culture](http://www.openculture.com/2017/01/henry-david-thoreau-on-when-civil-disobedience-against-bad-governments-is-justified.html)
 
 [250+ MOOCs getting started in February: enroll free today - Dan Colman, Open Culture](http://www.openculture.com/2017/02/250-moocs-getting-started-in-february-enroll-free-today.html)
 
