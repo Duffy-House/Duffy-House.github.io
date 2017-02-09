@@ -36,7 +36,7 @@ Selected readings from the week of January 30, 2017.
 
 [Bureaucrats are "the program" - Alexandra Bell, Just Security](https://www.justsecurity.org/37255/bureaucrats-program/)
 
-[The anthropology of Trump's executive order on immigration - Alex, Golub, Savage Minds](https://savageminds.org/2017/01/30/the-anthropology-of-trumps-executive-order-on-immigration/)
+[The anthropology of Trump's executive order on immigration - Alex Golub, Savage Minds](https://savageminds.org/2017/01/30/the-anthropology-of-trumps-executive-order-on-immigration/)
 
 [10 ways to take on Trump - The New Republic](https://newrepublic.com/article/140187/10-ways-take-trump-congress-streets)
 
