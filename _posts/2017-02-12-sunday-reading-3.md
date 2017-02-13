@@ -43,6 +43,6 @@ Selected readings from the week of February 6, 2017.
 
 [Robots and a magic school bus?  Welcome to the library of the future. - Monique O. Madan, Miami Herald](http://www.miamiherald.com/news/local/community/miami-dade/homestead/article131350924.html)
 
-[Vulnerable knowledge: DataRefuge and the protection of public resarch - Scott Schwartz with Patricia Kim, Savage Minds)[https://savageminds.org/2017/02/12/vulnerable-knowledge-datarefuge-and-the-protection-of-public-research/]
+[Vulnerable knowledge: DataRefuge and the protection of public resarch - Scott Schwartz with Patricia Kim, Savage Minds](https://savageminds.org/2017/02/12/vulnerable-knowledge-datarefuge-and-the-protection-of-public-research/)
 
 [Tech companies are building tiny, personal AIs to keep your messages private - Dave Gershgor, Quartz](https://qz.com/906751/tech-companies-are-building-tiny-personal-ais-to-keep-your-messages-private/)
